@@ -2,4 +2,4 @@
 # Ramer Alegre Ramos
 ___
 
-<https://bit.ly/_RAMZXS>
+<https://ramzxs.com>
